@@ -1,4 +1,4 @@
-# 
+# Premium bitmex trading bot extensiones for Mac OS | Profesional bitmex trading bot extensiones for PC Windows. Featuring API de intercambio descentralizado and comercio de futuros — optimized for maximum performance.
 
 
 
